@@ -14,8 +14,10 @@ Skills:
 
 ## What does this guy look like?
 
+See pic below. 
+
 ![Does he look good?](https://github.com/designrevolutions/OM22100003939/blob/main/omar_miah.jpg)
 
-See pic below. Signed pictures available on request.
+Signed pictures available on request.
 
 
